@@ -1,7 +1,7 @@
 ## Hi there 👋
 - 🔭 Currently a PhD Researcher in Earth Sciences 
 - 🌱 Always learning
-- 👯 open to colloborations 
+- 👯 open to Collaborations 
 - 📫 varunkhajuria10@gmail.com
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: From the Himalayas working on Cryosphere
